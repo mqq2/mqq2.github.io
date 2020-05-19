@@ -1,1 +1,2 @@
-# tsn2.github.io
+In God
+We Trust
